@@ -6,7 +6,7 @@
 - 🚀 Turning Ideas into Reality, One Line of Code at a Time!
 - 📚 Always Learning and Growing 💡
 - 🔭 Current Focus: Building impactful projects and exploring AI/ML.
-- 📫 Let’s connect: kydv901@gmail.com
+- 📫 Let’s connect: ky8050989@gmail.com
 
 
 <!---
